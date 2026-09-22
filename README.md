@@ -1,0 +1,2 @@
+# portofolio-flawsomekytaa
+Portofolio Reynandy
